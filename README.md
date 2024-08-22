@@ -5,7 +5,7 @@ Gazing Beyond to Uncover Hidden Insights 🔥🔍
 ---------------------------------------------
 
 * 🌍  I'm based in Nashville
-* ✉️  You can contact me at [jramakrishnan030792@gmail.com](mailto:jramakrishnan030792@gmail.com)
+* ✉️  You can contact me at [jaishree.ramakrishnan@gmail.com](mailto:jaishree.raamakrishnan@gmail.com)
 
 ### Skills
 
