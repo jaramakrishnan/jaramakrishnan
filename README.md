@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Gazing Beyond to Uncover Hidden Insights 🔥🔍
 ---------------------------------------------
 
-* 🌍  I'm based in Nashville
+* 🌍  I'm based in Wilmington,Delaware
 * ✉️  You can contact me at [jaishree.ramakrishnan@gmail.com](mailto:jaishree.raamakrishnan@gmail.com)
 
 ### Skills
